@@ -1,1 +1,1 @@
-https://mobile.tangthuvien.net/doc-truyen/dau-la-dai-luc
+https://tangthuvien.net/doc-truyen/dau-la-dai-luc
